@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my Skills.<br>👯 I’m looking to collaborate on everything Gen Z.<br>🤝 I’m looking for help with coding and tech.<br>🌱 I’m currently learning ethical hacking and cybersecurity.<br>💬 Ask me about everything tech.<br>⚡ Fun fact: I love Avatar.<br>🔗 You can find me on:<br>       - Email: adarsh.speaks@outlook.com<br>       - Twitter: @anotheradarsh
+🔭 I’m currently working on my Skills.<br>👯 I’m looking to collaborate on everything Gen Z.<br>🤝 I’m looking for help with coding and tech.<br>🌱 I’m currently learning ethical hacking and cybersecurity.<br>💬 Ask me about everything tech.<br>⚡ Fun fact: I love Avatar.<br>🔗 You can find me on:<br>       - Email: adarsh.speaks@outlook.com<br>       - Twitter: @heyadarsha
 
 
 ## 🌐 Socials:
